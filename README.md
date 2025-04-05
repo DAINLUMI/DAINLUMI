@@ -1,4 +1,9 @@
-## Hi there 👋
+## DAINLUMI 4EVA!
+![1000099002]![1000099001](https://github.com/user-attachments/assets/e7598047-ad64-458a-96e1-6e660ca8850c)
+(https://github.com/user-attachments/assets/36fcf9c6-70f8-4281-8c4e-16033a41ee98)
+[![1000099000](https://github.com/user-attachments/assets/60c21dcc-82af-4da2-a3e4-c274d8a2b559)
+Uploading 1000099002.jpg…]()
+
 
 <!--
 **DAINLUMI/DAINLUMI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
